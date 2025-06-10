@@ -66,3 +66,13 @@ Special thanks to my mentors **Anupinder Singh** and **Sajjal Nair** for their g
 Let’s build a more inclusive future with technology. 🌍✨
 
 ---
+
+
+![image](https://github.com/user-attachments/assets/171cf766-8e2b-4c81-afe7-e067576a3bb5)
+
+![image](https://github.com/user-attachments/assets/2e849ac5-03e0-4c20-8058-f923a34dcbdc)
+
+![image](https://github.com/user-attachments/assets/b1aca246-b78a-4bae-a7cc-4144fa201131)
+
+
+
